@@ -29,3 +29,32 @@ a million streams on spotify, this song was a generational anthem, dubbed as "Th
 
 ## Tracklisting And Individual Track-Dissection and Analysis.
 
+### Track 1. The End.
+
+The End. (The period is part of the title) is the opening track of this masterpiece, very similiar to the opening of "The Wall" by Pink Floyd, how
+the song suddenly drops into soaring guitar harmonies, the heavily layered vocal harmonies and grand elements to the song establish it's place as
+a rock opera, building up at the end of the song before perfectly transitioning into the song "Dead!"
+
+### Track 2. Dead!
+
+Dead! (Excalmation Point Included) is the second track of the album, it's a very fast and energetic song, it's almost cheerful and happy despite
+the song topic being so morbid, it's sinister disregard of the patient's life and how nonchalant the thought of disappearing from the face of the
+earth is treated is perfect, perfectly capturing how the emo genre takes negative things and turns it into a fun, happy, and energetic journey.
+
+### Track 3. This Is How I Disappear
+
+This Is How I Disappear is a very dark and disturbing third track, it deals with the thought of the patient's lover and how their rocky, abusive relationship
+is affected by the eventual death of the patient, how they speak of seances, and establishing a romantic connection with the dead, not to mention the absolutely
+crushing breakdown where the patient breaks down, screaming about how they can't hurt them anymore due to being dead.
+
+### Track 4. The Sharpest Lives
+
+The Sharpest Lives is a classic and catchy rock song, the lyrical talent of lead singer Gerard Way truly shines in this song, a song about how the patient would
+rather kill themself instead of letting their illness catch up to them, taking their own life instead of letting death do it. The song deals with alcohol and drug
+use, how the patient is actively trying to take the pain away by drinking themself to death, living The Sharpest Life he can before he eventually passes.
+
+### Track 5. Welcome To The Black Parade
+
+Welcome To The Black Parade is a generational anthem and is a perfect fifth track, one of the greatest songs to ever be released, if not the greatest.
+Welcome To The Black Parade is the leading single of The Black Parade, it's lyrics deal with the concept of how death takes you in the form of your fondest memory.
+In the song, the depicted patient's fondest memory is visiting the city to see a marching band with his father, which is why death takes him in the form of **The Black Parade**.
