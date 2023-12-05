@@ -1,6 +1,6 @@
 # A Love Letter To The Black Parade
 ### Album Analysis by Gavin Fredrick B. Torre
-(The-Black-Parade-cover-1.jpg)
+![Album Cover](images/TBPCoverSmall.jpg)
 ---
 ## Album Release Reception and Attention.
 
