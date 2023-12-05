@@ -1,5 +1,6 @@
 # A Love Letter To The Black Parade
 ### Album Analysis by Gavin Fredrick B. Torre
+(https://www.wepluggoodmusic.com/wp-content/uploads/2016/09/The-Black-Parade-cover-1.jpg)
 ---
 ## Album Release Reception and Attention.
 
@@ -58,3 +59,15 @@ use, how the patient is actively trying to take the pain away by drinking themse
 Welcome To The Black Parade is a generational anthem and is a perfect fifth track, one of the greatest songs to ever be released, if not the greatest.
 Welcome To The Black Parade is the leading single of The Black Parade, it's lyrics deal with the concept of how death takes you in the form of your fondest memory.
 In the song, the depicted patient's fondest memory is visiting the city to see a marching band with his father, which is why death takes him in the form of **The Black Parade**.
+
+Not only is the song unbelievably iconic, but the unique marching band elements mixed in to the rock opera are absolutely gorgeous, the song takes it to the next level
+with a key change and gorgeous guitar solo with harmonies, Lead Guitarist Ray Toro was very clearly influenced by Queen's Brian May, due to the structure of the guitars.
+This song is an absolute masterpiece, the writing is fantastic and has pieces of death scattered around in it, and the song itself is catchy, memorable and has a grand ending
+where the tempo is cut in half, the vocals are roaring and absolutely unbelievably, reaching the highest notes any male can hit, and soaring guitars and marching band elements.
+
+### Track 6. I Don't Love You
+
+I Don't Love You is a slow sixth song, a relaxing and somber track to slow the pace down after the first 4 fast tracks and of course, "Welcome To The Black Parade" 
+It deals with the patient's lover once again, how their rocky relationship was going before the patients death. The song doesn't explore as much interesting areas
+of the bands musical genius, however it didn't need any thing unbelievable and grand, it's a perfectly written and produced slow rock song that's perfectly
+adequate and classic in it's style.
