@@ -71,3 +71,9 @@ I Don't Love You is a slow sixth song, a relaxing and somber track to slow the p
 It deals with the patient's lover once again, how their rocky relationship was going before the patients death. The song doesn't explore as much interesting areas
 of the bands musical genius, however it didn't need any thing unbelievable and grand, it's a perfectly written and produced slow rock song that's perfectly
 adequate and classic in it's style.
+
+### Track 7. House Of Wolves
+
+House Of Wolves is an very sudden pick up from I Don't Love You, being one of the messiest and loudest songs on the album. It deals with the idea of where the patient
+is going after he dies, and how he's done enough bad to the point where he believes he's going to hell. It's a very sinister and evil song, it's loud, playful and 
+unbelievably aggressive. The pushing and pulling of guitars at the end before the awesome guitar solo make it a track to remember.
